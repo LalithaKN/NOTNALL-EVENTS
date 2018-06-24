@@ -1,4 +1,4 @@
-## Welcome to NOTNALL events
+# Welcome to NOTNALL events
 
 ## Birthday wishes to Surya (Dad-to-be)
 
